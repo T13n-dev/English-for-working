@@ -6,3 +6,4 @@
 3. I think i will have to work tonight. ( Tôi nghĩ tôi sẽ phải làm việc tối nay. )
 4. Why don't you leave it until tomorrow? ( Tại sao bạn không để nó đến ngày mai? ) - Because today is the deadline to complete all these documents. ( Bởi vì hôm nay là hạn chót hoàn thành tất cả các tài liệu này. )
 5. That's a lot of work. Do you need a cup of coffee? ( Nhiều việc thật đấy. Bạn có cần một tách cà phê không? ) - No thanks. I've already had some chocolate here. ( Không cảm ơn. Tôi có một ít sô cô la ở đây rồi. )
+6. I will be fine. ( Tôi sẽ ổn thôi ) - Okay. Take care of yourself. ( Được rồi. Nhớ chăm sóc bản thân nhé. )
